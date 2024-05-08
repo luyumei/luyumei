@@ -1,5 +1,3 @@
-### 我们在一起啦！
-
 <!--
 **luyumei/luyumei** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
