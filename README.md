@@ -1,8 +1,8 @@
 ○ from 🇨🇳 and living in the UK
 
-○ MSci Data Analytics finalist 👨‍🎓
+○ MSci Data Analytics graduate 👨‍🎓
 
-○ love traveling around the world 🌎
+○ love travelling around the world 🌎
 
 ○ play various musical instruments 🎹 🎻
 <!--
